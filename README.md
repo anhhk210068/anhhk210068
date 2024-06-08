@@ -7,7 +7,7 @@
 
 💻 I have a strong passion for Cyber Security and crafting handmade items, circuit board.
 
-📫 You can reach me via [Facebook]{fb.com\kyanh.185} or [Email]{hoangkyanhyb1@gmail.}.
+📫 You can reach me via [Facebook](fb.com\kyanh.185) or [Email](hoangkyanhyb1@gmail.com).
 
 
 
